@@ -1,6 +1,6 @@
 # 谷歌老户 - 飞鸟出海 | 高权重 Google 广告账户服务
 
-> **[gugelaohu.com](https://gugelaohu.com)** — 专业谷歌老户供应商，5年+ Google Ads 账户管理经验，不限行业不限地区。
+> **[gugelaohu.com](https://gugelaohu.com/index.html)** — 专业谷歌老户供应商，5年+ Google Ads 账户管理经验，不限行业不限地区。
 
 ---
 
@@ -67,7 +67,7 @@
 
 ## 联系我们
 
-- **官网**：[gugelaohu.com](https://gugelaohu.com)
+- **官网**：[gugelaohu.com](https://gugelaohu.com/index.html)
 - **广告知识库**：[gugelaohu.com/广告知识库](https://gugelaohu.com/%E5%B9%BF%E5%91%8A%E7%9F%A5%E8%AF%86%E5%BA%93.html)
 - **Telegram**：[@gugelaohu23](https://t.me/gugelaohu23)
 
@@ -77,4 +77,4 @@
 
 *Keywords: 谷歌老户, Google老户, 谷歌广告账户, Google Ads老账户, 谷歌广告代投, Google广告投放, 高权重谷歌账户, 飞鸟出海, gugelaohu*
 
-&copy; 2024-2026 [gugelaohu.com](https://gugelaohu.com)
+&copy; 2024-2026 [gugelaohu.com](https://gugelaohu.com/index.html)
